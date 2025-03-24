@@ -1,0 +1,1 @@
+# -Voc-Radiologista-Jo-o-Paulo-Queiroz-Curso-Completo-de-Radiografia-e-Interpreta-o-de-Imagens
